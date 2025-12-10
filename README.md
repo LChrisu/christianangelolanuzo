@@ -1,2 +1,0 @@
-# christianangelolanuzo
-Training
